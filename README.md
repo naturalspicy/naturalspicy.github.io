@@ -1,1 +1,1 @@
-# naturalspicy.github.io
+# Natural Spicy Inc.
